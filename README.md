@@ -1,7 +1,7 @@
 Cardpeek
 ========
 
-## About
+## E-LOKO from Niner Nation and i would like to say LA Rams sucks  
 
 _([Version française](README.fr.md))_
 
